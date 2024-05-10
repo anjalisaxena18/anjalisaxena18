@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **saxenaanjali1830@gmail.com**
 
-- 📄 Know about my experiences [https://anjali-saxena2002.tiiny.site]((https://peach-cally-82.tiiny.site))
+- 📄 Know about my experiences (https://peach-cally-82.tiiny.site)
 
 - ⚡ Fun fact **I think I am Creative**
 <br>
